@@ -153,10 +153,10 @@ Frank Bakke-Jensen, 52 år, Finnmark
 ### Fremskrittspartiet
 Ulf Leirstein, 44 år, Østfold  
 Erlend Wiborg, 33 år, Østfold  
-￼Hans Andreas Limi, 56 år, Akershus  
-￼Himanshu Gulati, 29 år, Akershus  
+Hans Andreas Limi, 56 år, Akershus  
+Himanshu Gulati, 29 år, Akershus  
 Kari K. Kjos, 55 år, Akershus  
-Siv Jensen 48, år, Oslo  
+Siv Jensen, 48 år, Oslo  
 Christian Tybring-Gjedde, 54 år, Oslo  
 Tor André Johnsen, 48 år, Hedmark  
 Morten Ørsal Johansen, 53 år, Oppland  
